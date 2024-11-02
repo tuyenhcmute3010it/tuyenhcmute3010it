@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @tuyenhcmute3010it
-- 👀 I’m interested in web
+- 👀 I’m interested in programing
 - 🌱 I’m currently learning hcmute
 - 💞️ I’m looking to collaborate on hcmute
 - 📫 How to reach me tuyenbest1234@gmail.com
